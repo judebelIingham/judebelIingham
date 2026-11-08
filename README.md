@@ -1,5 +1,5 @@
-<p align="center"><b>sign ata while u can pls</b></p>
-<p align="center"><img src="https://github.com/user-attachments/assets/f29574c6-7bfe-434b-b30a-cd93d69d7dd9" height="500px"/></p>
+<p align="center"><b>sign ata! , sorry im fighting everyday the sleep to remake this readme</b></p>
+<p align="center"><img src="https://i.pinimg.com/736x/98/34/d2/9834d2021bbfcad53eb8516dca432486.jpg" height="500px"/></p>
 <p align="center"><img src="https://komarev.com/ghpvc/?username=jude5bellingham&color=000000&label=deers"/> </p>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
